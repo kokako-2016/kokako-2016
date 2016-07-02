@@ -8,4 +8,4 @@ I was able to fix what I've destroyed. I finished all assignments on schedule.
 <br>
 What could I have done to improve?
 <br>
-Think twice before you do an action. Don't make silly mistakes that cost a lot of time. Get better at English.
+Think twice before you do an action. Don't make silly mistakes that cost a lot of time. Get better at English. Stay calm.
