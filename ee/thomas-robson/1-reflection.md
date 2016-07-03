@@ -1,0 +1,8 @@
+Why is reflection important?
+A number of the resources talked about asking oneself reflective questions in order to stimulate learning. I'm going to leave off with a passage from one of these." consider John Dewey’s famous quote “We don’t learn from experience. We learn from reflecting on experience.” and going to examine this from a position of empathy: I read an article about which published the results of a study. The study found those who read novels regularly, had a higher degree of empathy. Reading a novel forces you to identify with the key characters. It also exposes the reader to a greater number of experiences they otherwise wouldn’t have had, thus colouring their perspective. Reading fiction is a solitary pursuit, so Whilst reading you tend to reflect back the events onto yourself, this allows the reader to really think about herself/himself. There is a fitting saying that goes “in order to know others, you first need to know yourself.’”
+
+What did I do well this week?       
+I’ve been unwell so I feel as if I haven’t done anything that well haha. I have learnt quite a lot and gotten through all the exercises. So I haven't done too badly.  
+
+What could I have done to improve?
+I could keep better working patterns, as I felt all over the place this week. I need to get back to the gym and to keep it light this week! I could also start to ask myself regular questions about what it is I’m aiming to learn/achieve on an ongoing basis. 
