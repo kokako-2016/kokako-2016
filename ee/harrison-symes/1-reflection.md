@@ -1,0 +1,8 @@
+Reflection is important for several reason, in my opinion. 
+First of all reflecting on tasks you have completed and concepts your have learned is a good way of reinforcing the knowledge in your head. Memory is from repeatedly thinking about things, so reflectively considering information is a good way of putting a period at the end of your learnings for the week.
+Reflection also lets you consider what you did wrong, which lets you evauluate things you could do better or to avoid the same mistakes. Something like "I should have started nmy assignments earlier so I wouldnt be doing it all last minute", or "I skimm read something and missed important informaiton which made me have to backtrack and waste time".
+
+What did I do well this week? This course is my first time encountering most of the resources and tools that we use in the course. So I think I did well at jumping into learning Github and adjusting to the repository systems, as well as jumping into Html and css (be it basic level stuff) for the first time since 2012 in high school where the subject was very poorly covered. 
+
+As per my example above, time management is still a weak spot for me and always has been. As the weeks go on I plan to keep stepping up how early I can get the bulk of the work complete. These first weeks have been tough for that as all of my part time work shifts have been mostly in the first weekdays and then on saturdays, so I have ended up being stuck trying to finiosh work last minute on sundays. As I gradually start working less during the weekdays, I should be able to ensure that 90% of the workload is finished by the weekend. I plan on enforcing this goal on myself for sprint-3. 
+
