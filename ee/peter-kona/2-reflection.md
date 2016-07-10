@@ -1,0 +1,1 @@
+I spent a good amount of time going through all the resources. Blog writing is going smoothly. I am rewriting my old blogs to make them tidier and semantically correct.  I should meditate more. I really liked github lesson - reviewing code and merging.
