@@ -8,5 +8,5 @@ Step | Action
 4. | Read **Search Inside Yourself** chapter 2.
 
 ## What could I have done to improve?
-- If I could use my time more efficetively, I should have produced a better result.
+- If I could use my time more effectively, I should have produced a better result.
 - **Meditation** is very helpful to concentration. Will do it more frequently. Meditation gives me more meta-attention to pay on **Process Over Product**.
