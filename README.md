@@ -1,3 +1,4 @@
+[![Stories in Ready](https://badge.waffle.io/kokako-2016/kokako-2016.png?label=ready&title=Ready)](https://waffle.io/kokako-2016/kokako-2016)
 # kokako-2016
 
 Kia ora.
